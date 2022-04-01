@@ -1,1 +1,1 @@
-# ease-your-stress
+# ease-your-stresss
